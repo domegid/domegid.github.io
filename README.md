@@ -1,2 +1,0 @@
-# domegid.github.io
-Portfolio
